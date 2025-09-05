@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @lakshya-thakral
-- 👀 I’m interested in peaches
 - 🌱 I’m currently learning sciences
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me on telegram( lakshya_thakral)
